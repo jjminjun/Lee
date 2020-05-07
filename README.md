@@ -1,2 +1,0 @@
-# Lee
-i'm Lee
